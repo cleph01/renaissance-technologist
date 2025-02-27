@@ -29,7 +29,7 @@ If you have ideas, feedback, or would like to connect:
 
 - 📧 Email: charles.j.montoya@gmail.com
 - 🌐 [CharlesMontoya.com](https://charlesmontoya.com)
-- 📹 [YouTube](https://yourwebsite.com@TheRenaissanceTechnologist)
+- 📹 [YouTube/@TheRenaissanceTechnologist](https://yourwebsite.com@TheRenaissanceTechnologist)
 - 🐦 Twitter: [@\_CharlesMontoya](https://twitter.com/_CharlesMontoya)
 
 ---
